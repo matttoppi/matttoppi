@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @matttoppi
 
-- 📫 How to reach me: matt@cassette.tech
+- 📫 How to reach me: matt.d.toppi@gmail.com
